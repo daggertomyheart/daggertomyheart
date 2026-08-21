@@ -1,16 +1,31 @@
-## Hi there 👋
+<div align="center">
+<img src="" width="300" height="300" alt="Description">
 
-<!--
-**daggertomyheart/daggertomyheart** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
+<span style="color:#FFBAD3">
+  Sophie ,, Sidney ۫ she / her ！◜◡◝
+  ♡   .   —  ꒰ 𝙘 + 𝙝 𝙛𝙧𝙚𝙚𝙡𝙮 ... ꒱
+  
+<br>
+<br>
 
-Here are some ideas to get you started:
+Actually, i am a really energetic and kind person I'd say ^^ I recommend you come sit with me or talk to me ♡ i don't bite at all. In fact, I'd really appreciate it if you sat with me. I'm mostly AFK and **alone,** so..
+as states,im mostly afk , if you'd like to get my attention,please whisper me and I'll get back to you when i can <3 
+<br>
+<br>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+**DNI** ;; pedos,n@zis,zoos and cat haters./srs no, you are not valid get help.
+
+**INT** ;; everyone :D I honestly int and make *friends with everyone* !! I will lyk if you make me uncomfortable,i block freely.
+
+<br>
+<br>
+
+thank yew for reading ⸜(｡˃ ᵕ ˂ )⸝♡ have a lovely and wonderful day ♡♡
+
+︵︵︵ ๑ ♡ ๑ ︵︵︵
+
+
+<div align="center">
+<img src="" width="300" height="300" alt="Description">
+
