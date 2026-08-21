@@ -1,5 +1,5 @@
 <div align="center">
-<img src="" width="300" height="300" alt="Description">
+<img src="ezgif-8ec86157b44db381.gif" width="300" height="300" alt="Description">
 
 <div align="center">
 <span style="color:#FFBAD3">
@@ -27,5 +27,5 @@ thank yew for reading ⸜(｡˃ ᵕ ˂ )⸝♡ have a lovely and wonderful day �
 
 
 <div align="center">
-<img src="" width="300" height="300" alt="Description">
+<img src="126211852_PmT6o0lsNbTY1gK.gif" width="300" height="300" alt="Description">
 
