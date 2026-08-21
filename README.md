@@ -24,7 +24,7 @@ as states,im mostly afk , if you'd like to get my attention,please whisper me an
 Dylan dylanndylan ohhhdylanmy lovee
 
 
-thank yew for reading ⸜(｡˃ ᵕ ˂ )⸝♡ have a lovely and wonderful day ♡♡
+thank yew for reading ⸜(｡˃ ᵕ ˂ )⸝♡ have a lovely and wonderful day and take care of yourself ♡♡
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵
 
