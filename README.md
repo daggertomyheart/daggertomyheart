@@ -21,6 +21,9 @@ as states,im mostly afk , if you'd like to get my attention,please whisper me an
 <br>
 <br>
 
+Dylan dylanndylan ohhhdylanmy lovee
+
+
 thank yew for reading ⸜(｡˃ ᵕ ˂ )⸝♡ have a lovely and wonderful day ♡♡
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵
